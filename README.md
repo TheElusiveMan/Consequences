@@ -1,10 +1,19 @@
 ﻿# Consequences
+ 
 *Condesending Lebowski*
+
 met
-**Adjective for a woman and woman's name**
+
+**Unusual Amelia**
+
 He wore a *a gimp suit*
-She wore a **what she wore**
+
+She wore a **broad straw hat and a summer dress**
+
 He said *“I don't feel so good Mr Stark"*
-She said **“what she said”**
+
+She said **“Well, that was unexpected.”**
+
 As a consequence, *Giving money to the homeless yeet*.
-And the world said **“what the world said”**
+
+And the world said **“I'm going to die and it's humanity's fault.”**
