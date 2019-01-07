@@ -1,10 +1,10 @@
 # Consequences
 *Adjective for a man and man’s name*
 met
-**Adjective for a woman and woman's name**
+**Unusual Amelia**
 He wore a *what he wore*
-She wore a **what she wore**
+She wore a **broad straw hat and a summer dress**
 He said *“what he said"*
-She said **“what she said”**
+She said **“Well, that was unexpected.”**
 As a consequence, *the consequence*.
-And the world said **“what the world said”**
+And the world said **“I'm going to die and it's humanity's fault.”**
